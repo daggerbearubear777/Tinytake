@@ -232,4 +232,4 @@ TinyTake is available as a full free version with all features and updates inclu
 Don't miss out on the opportunity to enhance your screen capturing and sharing experience. Download TinyTake now for free and unlock your creative potential!
 
 ---
-**Last updated:** 2026-11-03 03:13:49 UTC
+**Last updated:** 2026-11-03 11:30:18 UTC
